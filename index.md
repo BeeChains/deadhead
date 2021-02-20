@@ -19,7 +19,7 @@ This is DEADHEAD domain and the first Grateful Dead [Handshake](https://handshak
 Here is the Official Grateful Dead site [Dead.NET](https://www.dead.net/)!
 
 To inquiry, see [Inner I Net Company on Facebook](https://facebook.com/innerinetcompany) 
-See [@HNSDOMAINS](https://twitter.com/hnsdomains)
+- More [HNS-DOMAINS/](http://home.hns-domains.hns.to/) | [@HNSDOMAINS](https://twitter.com/hnsdomains) 
 - [THE ROOT ZONE/](http://therootzone.hns.to/)
 
 ![image](https://user-images.githubusercontent.com/37987346/89966210-9aa63400-dc1c-11ea-8fef-fab7a9131812.png)   ![image](https://user-images.githubusercontent.com/37987346/89966210-9aa63400-dc1c-11ea-8fef-fab7a9131812.png)
